@@ -17,4 +17,4 @@ She is the Associate Director of Academic Technology in the Center for Excellenc
 
 ## Education
 
-Nomadic learner from the onset. I've been to school at some places but I learn the most from wandering. direct edit
+Nomadic learner from the onset. I've been to school at some places but I learn the most from wandering. 
